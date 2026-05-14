@@ -1,4 +1,4 @@
-# 
+# nft floor sweeper bot quantitative Bot - snipe-list-management and wash-trading-detection offers the most advanced nft floor sweeper bot, with snipe-list-management and
 
 
 
